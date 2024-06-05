@@ -9,6 +9,6 @@ Meu nome é **Eik Pedro**
 
 ## Você pode entrar em contato comigo 📫
 
-eikespadar15@gmail.com
+**eikespadar15@gmail.com**
 
-@bifeaparmegiana
+**@bifeaparmegiana**
