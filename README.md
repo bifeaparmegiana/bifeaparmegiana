@@ -1,5 +1,5 @@
 ## Boas Vindas ao meu perfil 💙
-Meu nome é Eik Pedro
+Meu nome é **Eik Pedro**
 
 • Estou estudando na Alura
 
